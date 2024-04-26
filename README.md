@@ -50,6 +50,6 @@ A pesar de mi musculoso cuerpo se sentia tan suave y tierno el abrazo,
 que empezo a llorar.
 
 
-Y asi fue como una niña que estaba en un establo, fue capaz te tener sus primeras lagrimas de felicidad.
+Y asi fue como una niña que estaba en un establo, fue capaz de tener sus primeras lagrimas de felicidad.
 
 FIN
