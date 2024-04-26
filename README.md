@@ -26,11 +26,11 @@ verdes sembrados con las semillas de la amapola violeta"
 Ella empezo a calmarse y me dijo en una voz suave y calmada:
 "Entonces... Que es esta sensacion que siento?"
 
-Y yo, con una sonrisa de felizidad en la cara le dije con serenidad:
+Y yo, con una sonrisa de felicidad en la cara le dije con serenidad:
 
 "Hija mia, esto que sientes, no se puede definir mas que con una palabra"
 
-Ella frunckió el ceño y me preguntó mientras se iba calmando:
+Ella frunció el ceño y me preguntó mientras se iba calmando:
 
 "Y cual es esa palabra que tanta magia alberga? Por que me siento tan bien de repente?
 Dime entonces esa palabra por favor, para poder recordarla para siempre y que nunca se me olvide"
